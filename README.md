@@ -1,2 +1,2 @@
 # Лаба 6
-ладно, так репозиторийhttps://youtu.be/PkT0PJwy8mI
+ладно, так [репозиторий ](https://youtu.be/PkT0PJwy8mI)
